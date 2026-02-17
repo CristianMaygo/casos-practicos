@@ -11,4 +11,4 @@ Agradezco sinceramente la oportunidad de participar en este proceso. Quedo atent
 Muchas gracias por su tiempo y consideración.
 
 ---
-*Contacto: [maygo782@gmail.com]*
+*Contacto: [maygo782@gmail.com o www.linkedin.com/in/cristianmgo]*
